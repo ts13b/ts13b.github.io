@@ -1,4 +1,4 @@
-# HOME
+# HOME🌴
 
 [Sozialkunde](https://ts13b.github.io/sozialkunde)
 
